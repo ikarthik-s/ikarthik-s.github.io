@@ -1,1 +1,0 @@
-# ikarthik-s.github.io
